@@ -1,2 +1,0 @@
-# KahGui
-UR BLACK
